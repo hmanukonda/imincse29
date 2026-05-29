@@ -4,6 +4,7 @@
 * long
 
 
+
 romeo was *lovesicked*. He was both **love** and Also **sick**.
 
 Sick with greed and lust yes that is a gived but the true was that he was truly sick and sniffling because he had gone out to a party in only a speedo to give off the faint impressions that he is a stripper if only to masked his weak little submissive instincts. he did not want to be preyed upon by some dominating alpha excepts that deep down inside as deep as the Ultra Clean Toilet Plunger could go he yearned to be dominated. Did that make him toilet? how scandalous he thought for he was a perfect little gentlemens and definitely not a plungable whole hole 
@@ -46,7 +47,7 @@ She smirked at his kawaii waifu blush as he flopped his sparkly anime hair out o
 `1+1`
 and just likes that the spelled was brokes
 she sauntered away swaying her hips as romeo drunkly flopped back over the railing and into the fountain. Confusion spread throughout himselfs as a emotion like confusion coursed through his veins alongside the lust that ran through them like 
-To be continued…
+## To be continued…
 ```
 return 0;
 ```
