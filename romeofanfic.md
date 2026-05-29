@@ -1,5 +1,7 @@
-#The Truth about love
+# The Truth about love
 
+* unkownauthor
+* long
 
 
 romeo was *lovesicked*. He was both **love** and Also **sick**.
@@ -11,11 +13,17 @@ he was trying to be a *stripper* but then he got a little too drunk on the baby 
 
 The Pepto Bismol causes him some gastronomic distress and he had rushed to the fountain to dramatical collapse drunkly. then he saw an open door above a balcony. nice he whined petulantly i want to sleep. As he spy the bed he had only one thought which was to sleepings.
 
-he frantically and ferociously clambered up the balcony railing with a ferocious gleam in his eye with a matching ferociously gleamed in his Incisors which hadded been meticulously polishes by his precious maid who happens to be the spokespersons of Crest White-ify White Supremacy Mouthwash, “sigh,” sighs romeo dreamily, sprawling over the balcony railing and baleful looks down at the twinkly cinderella-esque fountain and courtyard below him. he grinded against the stone balustrade like a Kitchen Aid mortar and pestle. the drunk ramblings of his fellow ex friends and partygoers echoed in his head like all new Focal Brand Loudspeaker…
->“Get out of here you little–oh…who’s this” her voices dips low in a sultry tones’
->Huh what mumbles romeo blearily as bleary as eyes without AcuVue contact lensed
->he look up at the cooing, trailing off as he noticed just who was gazing at him with very >undisguise longings
-‘i was just wondering who you are…” juliet finished hungrily raking her eyes over him like a PowerSweeper Carpet Brush.
+he frantically and ferociously clambered up the balcony railing with a ferocious gleam in his eye with a matching ferociously gleamed in his Incisors which hadded been meticulously polishes by his precious maid who happens to be the spokespersons of Crest White-ify White Supremacy Mouthwash, “sigh,” sighs romeo dreamily, sprawling over the balcony railing and baleful looks down at the twinkly cinderella-esque fountain and courtyard below him. he grinded against the stone balustrade like a Kitchen Aid mortar and pestle. the drunk
+ramblings of his fellow ex friends and partygoers echoed in his head like all new Focal Brand
+
+***
+Loudspeaker…
+
+> “Get out of here you little–oh…who’s this” her voices dips low in a sultry tones’
+> Huh what mumbles romeo blearily as bleary as eyes without AcuVue contact lensed
+> he look up at the cooing, trailing off as he noticed just who was gazing at him with very > undisguise longings
+
+> ‘i was just wondering who you are…” juliet finished hungrily raking her eyes over him like > a PowerSweeper Carpet Brush.
 
 his heart surged and overflows with feel like a gushing sink badly in need of a plumbers
 “I-i-i-i- uh-um- i mean..wh-well….” stammer romeo graceless and simperingly
