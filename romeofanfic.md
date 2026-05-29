@@ -11,7 +11,7 @@ Sick with greed and lust yes that is a gived but the true was that he was truly 
 he was trying to be a *stripper* but then he got a little too drunk on the baby wine that his floppy wrist friends feeded him but it was an UNavoid circumstanced
 >the stuff he had slurped drunkily not drunkenly because can you be drunk if you aren’t it   wered a paradoxical situation like a true shakespearean incident was actually some fizzy water with dissolved Pepto Bismol like how dissolved his friendships hadded been.
 
-![IMAGE] (https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQgtF6UnwxtuBPzVKnK7-M2PeVo5zDejzZrMg&s)
+![Image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQgtF6UnwxtuBPzVKnK7-M2PeVo5zDejzZrMg&s)
 
 The Pepto Bismol causes him some gastronomic distress and he had rushed to the fountain to dramatical collapse drunkly. then he saw an open door above a balcony. nice he whined petulantly i want to sleep. As he spy the bed he had only one thought which was to sleepings.
 
