@@ -44,6 +44,8 @@ unmasked pure lust flashed in juliet’s alpha glowing orbs. she locked eyes wit
 
 she let out a seducing voiced tipping his face up with her closed fan to force him to meeted her lovestruck eyed behind them the fountain dripped like a faulty faucet which closely matches romeo’s drooling which could only be cured with a healthy doses of SunView Kids Multivitamins
 
+![Image](https://www.sunshinenaturals.com/cdn/shop/files/Standard_29_of_68.png?v=1735107561&width=1946)
+
 Juliet leaned close and shoved him up against the wall in a very dominant way which immediately made romeo feels corner and swoon at the sudden kabedon
 “i know your lying” she murmur huskily her breath which was flavored by Trident Minty Burst gum warmed his ear and tickles it which riles him up furthers
 
