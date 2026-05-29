@@ -1,7 +1,7 @@
 # The Truth about love
 
 * unkownauthor
-* long
+* short
 
 
 
