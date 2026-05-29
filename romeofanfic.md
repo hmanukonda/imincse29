@@ -32,6 +32,8 @@ he look up at the cooing, trailing off as he noticed just who was gazing at him 
 
 ‘i was just wondering who you are…” juliet finished hungrily raking her eyes over him like  a PowerSweeper Carpet Brush.
 
+![Image](https://www.cleanfreak.com/cdn/shop/files/trusted-clean-ph12-3pg-carpet-scrubbing-powerhead_1200x1200.jpg?v=1755554896)
+
 his heart surged and overflows with feel like a gushing sink badly in need of a plumbers
 “I-i-i-i- uh-um- i mean..wh-well….” stammer romeo graceless and simperingly
 
