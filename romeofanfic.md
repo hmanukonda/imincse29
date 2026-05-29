@@ -9,7 +9,7 @@ romeo was *lovesicked*. He was both **love** and Also **sick**.
 Sick with greed and lust yes that is a gived but the true was that he was truly sick and sniffling because he had gone out to a party in only a speedo to give off the faint impressions that he is a stripper if only to masked his weak little submissive instincts. he did not want to be preyed upon by some dominating alpha excepts that deep down inside as deep as the Ultra Clean Toilet Plunger could go he yearned to be dominated. Did that make him toilet? how scandalous he thought for he was a perfect little gentlemens and definitely not a plungable whole hole 
 
 he was trying to be a *stripper* but then he got a little too drunk on the baby wine that his floppy wrist friends feeded him but it was an UNavoid circumstanced
->the stuff he had slurped drunkily not drunkenly because can you be drunk if you aren’t it   >wered a paradoxical situation like a true shakespearean incident was actually some fizzy >water with dissolved Pepto Bismol like how dissolved his friendships hadded been. 
+>the stuff he had slurped drunkily not drunkenly because can you be drunk if you aren’t it   wered a paradoxical situation like a true shakespearean incident was actually some fizzy water with dissolved Pepto Bismol like how dissolved his friendships hadded been. 
 
 The Pepto Bismol causes him some gastronomic distress and he had rushed to the fountain to dramatical collapse drunkly. then he saw an open door above a balcony. nice he whined petulantly i want to sleep. As he spy the bed he had only one thought which was to sleepings.
 
@@ -23,7 +23,7 @@ Loudspeaker…
 > Huh what mumbles romeo blearily as bleary as eyes without AcuVue contact lensed
 > he look up at the cooing, trailing off as he noticed just who was gazing at him with very > undisguise longings
 
-> ‘i was just wondering who you are…” juliet finished hungrily raking her eyes over him like > a PowerSweeper Carpet Brush.
+> ‘i was just wondering who you are…” juliet finished hungrily raking her eyes over him like  a PowerSweeper Carpet Brush.
 
 his heart surged and overflows with feel like a gushing sink badly in need of a plumbers
 “I-i-i-i- uh-um- i mean..wh-well….” stammer romeo graceless and simperingly
